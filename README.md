@@ -18,7 +18,7 @@ all my skins will have this github attached!!! if they don't, it's not me (or i 
 
 # dni
 
-i'm usually on the 18+ server, so if you're a minor and talking with me there, i'm going to hide you.
+i'm usually on the 18+ server, so if you're a minor and talking with me there, dni. i'm going to hide you. this does not apply to when i'm on the safe server.
 
 basic dni applies, generally just don't be a bad person or weird lol. i will hide and block at my own leisure
 
