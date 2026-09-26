@@ -27,5 +27,3 @@ i <3 more umas than i can count but especially tap, gimlet, and kris s, i like a
 i'm also into final fantasy and transformers (and touhou kind of)
 
 fluent in english, learning japanese, (re)learning spanish
-
-                  
