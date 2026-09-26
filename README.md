@@ -1,4 +1,4 @@
-<img src="capy/yayyy.gif" alt="Geed clapping">
+<img src="yayyy.gif" alt="Geed clapping">
 # byf
 i get super afk sometimes.... i try to match up my current online status with how likely i am to respond, so if you see me on do not disturb and i seem afk just throw me a whisper!
 
