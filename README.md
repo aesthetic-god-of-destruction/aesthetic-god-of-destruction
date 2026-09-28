@@ -4,7 +4,7 @@
 
 # byf
 
-i get super afk sometimes.... i try to match up my current online status with how likely i am to respond, so if you see me on do not disturb and i seem afk just throw me a whisper!
+i get super afk sometimes.... i try to match up my current online status with how likely i am to respond, so if you see me on do not disturb or 💤 and i seem afk just throw me a whisper!
 
 i'm also very awkward i'm just like this.... i might not have much to say but i love to listen! other times i might be super enthusiastic LOL
 
